@@ -1,2 +1,5 @@
 # hello-world
 Introduction
+I am a 62 year old idealist who refuses to conform to the current materialistic dispensation. Despite repeated setbacks; frustrations and defeats I am still sticking to the pedestal of a rebel with an alternate agenda for positive, evolutionary change that is all inclusive and ensures stability during transition. I believe that this is what is needed. "For the cause that lacks assistance. For the wrong that needs resistance and for the good that we can do!"
+I am an environmentalist and use Bioenvironmental Management Tools to affect protection of our Biome and ensure that poverty and deprivation is eradicated. I believe in equal opportunities and despise the comeptition for scare resources as I know that there is plenty for all. Predatorial behavior is something that has to be overcome and dispensed with. We need to humanise ourselves. The Lower self commanding to evil needs to be tamed and converted into a fine steed to ride towards transendental horizons that are very much real and open to all.
+I believe that Love conquerors all and is the real underlying driving force of the Universe and all creation.
